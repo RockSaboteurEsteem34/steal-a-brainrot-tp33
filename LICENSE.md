@@ -1,4 +1,4 @@
-#  
+#  instant anime card clash Script offers the most advanced anime card clash Script, with no cooldown and esp. Perfect for dominating any match.
 
 
 
